@@ -1,2 +1,0 @@
-# keanoCarpeso
-keano carpeso portfolio
